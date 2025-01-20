@@ -1,4 +1,4 @@
-# Duangcloud
+# Duangcloud_is_invalid
 Duangcloud各位用户注意：\
 Duangcloud团队已经确认跑路，客服已经彻底不回邮件，勿再继续订阅。\
 切勿使用来自中国大陆的梯子，信息泄露风险很高！
